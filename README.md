@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Thanked93
-- 👀 Cat Ninja with a Mission.
+- 👀 Ninja with a Mission.
 - 📫 How to reach me coeln.julian@gmail.com
 
 <!---
